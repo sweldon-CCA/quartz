@@ -1,0 +1,8 @@
+[[Valerie Norwood - Director of Gift Planning]]
+[[Jevetta Trapp - Associate Director of Donor Relations & Stewardship]]
+[[Alexandra Cratsenberg - Associate Director of Principal Gifts & Campaign]]
+[[Kim Cuevas - Senior Director of Development]]
+[[Peggy Fine - Senior Director of Development, College of Education]]
+[[Maria Tran - Associate Director of Development]]
+[[Rachel Whalen - Director of Development]]
+[[Brigette Yates - Director of Development, College of Nursing]]

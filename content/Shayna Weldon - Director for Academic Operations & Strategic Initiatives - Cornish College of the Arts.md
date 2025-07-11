@@ -1,0 +1,5 @@
+[[Brian Harlan - Dean, Cornish College of the Arts]]
+[[Gavin Yehle - Production Manager]]
+[[Vacant - Director of Creative Spaces]]
+[[Kristin Swenson-Lintault - Gallery Operations Manager]]
+[[Marc Mixon - Technical Director]]

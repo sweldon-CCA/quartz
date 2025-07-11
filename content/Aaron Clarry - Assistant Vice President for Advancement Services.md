@@ -1,0 +1,6 @@
+[[Julieanne Culver - Director of Finance & Operations for University Advancement]]
+[[Suzanne Haws - Advancement Data & Systems Specialist]]
+[[Kenna Kettrick - Advancement Services Specialist]]
+[[Martine Ryan - Assistant Director of Advancement Services Gift Processing]]
+[[Kiyomi Kishaba - Advancement Marketing Specialist - Advancement Services Alumni]]
+[[Kim Palumbarit - Director of Prospect Development]]

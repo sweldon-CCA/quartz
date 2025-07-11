@@ -1,0 +1,6 @@
+[[Theater Chair]]
+[[Dance Chair]]
+[[Film & Media Chair]]
+[[Music Chair]]
+[[Art Chair]]
+[[Design Chair]]

@@ -1,0 +1,1 @@
+[[Kara Wittmer - Asset Manager]]
